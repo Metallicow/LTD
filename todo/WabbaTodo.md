@@ -1,0 +1,22 @@
+* Wabbajack the wabbajack
+
+- [ ] Pick up the Wabbajack
+- [ ] Hold the Wabbajack firmly
+- [ ] Focus your energy on the Wabbajack
+- [ ] Concentrate on its power
+- [ ] Invoke the magical essence of the Wabbajack
+- [ ] Channel your intention through the Wabbajack
+- [ ] Embrace the chaotic energy of the Wabbajack
+- [ ] Allow the Wabbajack's magic to flow through you
+- [ ] Point the Wabbajack at the target
+- [ ] Aim the Wabbajack precisely
+- [ ] Release the energy within the Wabbajack
+- [ ] Unleash the power of the Wabbajack
+- [ ] Witness the transformation caused by the Wabbajack's magic
+- [ ] Observe the unpredictable effects of the Wabbajack
+- [ ] Embrace the whimsical nature of the Wabbajack's enchantments
+- [ ] Accept the Wabbajack's role as a tool of chaos
+- [ ] Rejoice in the chaos unleashed by the Wabbajack
+- [ ] Revel in the unpredictable and random outcomes
+- [ ] Respect the power of the Wabbajack
+- [ ] Safely store the Wabbajack when done using it
